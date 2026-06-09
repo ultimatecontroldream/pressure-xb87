@@ -1,4 +1,4 @@
-#  
+#  premium Script for pressure offers the most advanced pressure Script, with one-hit kill and auto-farm. Perfect for dominating any match.
 
 
 
